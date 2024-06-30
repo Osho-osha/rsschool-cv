@@ -1,4 +1,4 @@
-# Petrova Natasha
+# Natalya Petrova
 
 ## Contacts
 
